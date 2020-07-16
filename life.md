@@ -25,7 +25,7 @@ shops forbidden to open.
 
 So while some soberly act out the role of the high priest many other journalists, like the much despised money-changers of the temple, scratch a living from a constant exchange of vapid ideas. Their contribution to society so negligible as to be quite homeopathic. A medicine that cures ailments by leveraging the placebo effect. After an hour or so of listening to the parade of experts on TV and scanning the new sites I was none the wiser, indeed all that this circus had achieved was to reinforce my pessimism for the fate of humankind. 
 For,  such was the state of ignorance as to the nature of the virus,
-that all they could do was to enjoin us to continue hiding ourselves away.
+all they could do was to enjoin us to continue hiding ourselves away.
 
 And so we did. Obediently waiting for the day when the all clear would sound
 and we could once again go down into the city streets and mingle with the throng. Once there we should do our duty as citizens and consumers, spending profligately that the mighty wheels of capitalism, 
