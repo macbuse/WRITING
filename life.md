@@ -34,6 +34,13 @@ scrap of life in a matter of weeks had paralysed the fearless economies of the
 free world.
 
 Nothing could be the same again. So they chanted. We should forget their errors
-of the past, not forgive them but forget. Together we were going to a better
-place, a new world where the most vulnerable would be with us. Well at least
-for the handful of months that fate might have allotted them.
+of the past, not merely forgive them but forget. Together we were going to a better
+place, a new world where the most vulnerable would still be with us. Well at least
+for the handful of months that fate might have allotted them given their
+advanced years. Those most vulnerable, a peculiar almost Dickensian phrase,
+conjuring visions of wretched orphans falling into the hands of vile
+slave masters. Those poor unfortunates, the prospect of a life of misery before
+them. But the most vulnerable who now were the wheezing old, their lives well
+spent, often packed with memories of the post-war Golden Age.
+
+So we obeyed and traded the lives of our children for a few months more.
