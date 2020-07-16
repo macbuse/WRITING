@@ -18,7 +18,12 @@ The morning routine began with an analysis of the media's latest outpourings:
 - a tour of the hospitals
 - an interview with someone of importance.
 
-So the journalists, like the much despised money-changers of the temple, scratched a living from a constant exchange of vapid ideas. Their contribution to society so negligible as to be quite homeopathic. A medicine that cures ailments by leveraging the placebo effect. After an hour or so of listening to the parade of experts on TV and scanning the new sites I was none the wiser, indeed all that this circus had achieved was to reinforce my pessimism for the fate of humankind. 
+The ritual plays out each morning. Solemnly they utter the words, nodding
+meaningfully, pausing measuredly. The illusion only broken by the advertising
+breaks vaunting the benefits of products that are for the moment locked away in
+shops forbidden to open.
+
+So while some soberly act out the role of the high priest many other journalists, like the much despised money-changers of the temple, scratch a living from a constant exchange of vapid ideas. Their contribution to society so negligible as to be quite homeopathic. A medicine that cures ailments by leveraging the placebo effect. After an hour or so of listening to the parade of experts on TV and scanning the new sites I was none the wiser, indeed all that this circus had achieved was to reinforce my pessimism for the fate of humankind. 
 For,  such was the state of ignorance as to the nature of the virus,
 that all they could do was to enjoin us to continue hiding ourselves away.
 
