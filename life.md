@@ -60,5 +60,7 @@ his inevitable decline played out, would be an act of brazen selfishness.
 There is a world out there in the daylight ready to convince you that to see
 mortality in this way is wrong, romantic foolery at best, most likey dangerous heresy. For we must compete, strive to appease the socio-economic orthodoxy. To simply let go of the material is an verging on a declaration of war, insurrection. And those eloquent commentators defended a right to life above all other considerations. There seems a deep flaw in their arguments, when you weigh the unspent years of the young that must be sacrificed so that their vulnerable elders might wheeze away a few more bedridden months.
 
-
-
+Amidst the bland banter an occasional voice stands out wondering why, after of
+centuries where lives were cheap, that now even those last few wrinkly,
+incontinent  years
+have come to be valued at more than the combined wealth of nations.
