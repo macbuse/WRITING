@@ -44,3 +44,10 @@ them. But the most vulnerable who now were the wheezing old, their lives well
 spent, often packed with memories of the post-war Golden Age.
 
 So we obeyed and traded the lives of our children for a few months more.
+
+I had a father who died just before everything changed. It wasn't an abrupt
+parting but a goodbye drawn out over a year or so. There was an initial event,
+something we had been waiting for, dreading since he stopped work and joined
+the leisured classes. For most it might seem a trivial thing but when he
+decided that golf was no longer his passion then both my brother and I feared
+that the time was, if not upon us, not so very far off.
