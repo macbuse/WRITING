@@ -1,4 +1,4 @@
-# Life
+# Obedience
 
 Post confinement dreams assumed a larger place in my existence.
 They lurked in those last hours of shallow sleep sharing their fragmented
@@ -51,3 +51,14 @@ something we had been waiting for, dreading since he stopped work and joined
 the leisured classes. For most it might seem a trivial thing but when he
 decided that golf was no longer his passion then both my brother and I feared
 that the time was, if not upon us, not so very far off.
+To know and accept is a rare quality in a world of fierce individualism. To
+fight for the last crumb, the last gasp of air, as inelegant and barbaric as
+that might be, is the custom now days. So he went, knowing his time had come,
+that many he loved had gone before and that to cling on, a burden to others as
+his inevitable decline played out, would be an act of brazen selfishness. 
+
+There is a world out there in the daylight ready to convince you that to see
+mortality in this way is wrong, romantic foolery at best, most likey dangerous heresy. For we must compete, strive to appease the socio-economic orthodoxy. To simply let go of the material is an verging on a declaration of war, insurrection. And those eloquent commentators defended a right to life above all other considerations. There seems a deep flaw in their arguments, when you weigh the unspent years of the young that must be sacrificed so that their vulnerable elders might wheeze away a few more bedridden months.
+
+
+
