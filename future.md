@@ -22,4 +22,3 @@ such get out from the dreary drudge of what passes for normality.
 Of course drugs might work for a while.  
 And drugs did work quite well for a number of my generation. 
 
-

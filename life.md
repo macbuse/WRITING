@@ -78,3 +78,11 @@ oaths demand that they protect life and we must all, no matter what our
 profession or vocation, renounce our common rights that they might respect
 their sacred vows. So we did but for what? The angel of death passed by and swept off with many
 souls, but were they not those whose time was already almost at hand?
+
+The young are masked, cleansing their hands as they enter, forbidden to form in groups in public. Festivities are policed if not cancelled. No more birthdays, no more raves, no more weddings. The music has been silenced by medical decree. Unsold bouquets of flowers fade in the summer sun. Unfulfilled dreams abound in a world holding its breath lest some frail old soul be touched by the invisible enemy lurking in its lungs. Unloved and hidden behind masks girls and boys are anonymous pawns in a stale game played out between doctors, industrialists and politicians.
+
+Breath is precious. Breathing is potentially lethal. Each unfiltered lungful of air in public is to
+be accounted for. The future of humanity is in the balance and unprotected
+exhalation borders on being an assassination attempt. Authorities must act
+swiftly to mercilessly stamp out such anti social behaviour.
+
