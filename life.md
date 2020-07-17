@@ -74,7 +74,7 @@ their fellow countrymen and common ideals. Fields of crosses attest to their
 sacrifice. What will they erect as a monument to the ruined lives this time?
 
 Stern faces in white coats tell us that there was no other humane option. Their
-vows demand that they protect life and we must all, no matter what our
+oaths demand that they protect life and we must all, no matter what our
 profession or vocation, renounce our common rights that they might respect
-them. So we did but for what? The angel of death passed by and carried off many
+their sacred vows. So we did but for what? The angel of death passed by and carried off many
 souls, but were they not those whose time was already almost at hand.
