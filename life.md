@@ -70,11 +70,11 @@ centuries where lives were cheap, that now even those last few wrinkly,
 incontinent  years
 are deemed to be worth more than the combined wealth of nations. A century ago
 the youth of Europe were mown down on muddy battlefields in the defense of
-their fellow countrymen and common ideals. Fields of crosses attest to their
-sacrifice. What will they erect as a monument to the ruined lives this time?
+their fellow countrymen and common ideals. Fields of crosses stand honoring their
+sacrifice. What will be erected as a monument to the spoiled lives this time?
 
 Stern faces in white coats tell us that there was no other humane option. Their
 oaths demand that they protect life and we must all, no matter what our
 profession or vocation, renounce our common rights that they might respect
-their sacred vows. So we did but for what? The angel of death passed by and carried off many
-souls, but were they not those whose time was already almost at hand.
+their sacred vows. So we did but for what? The angel of death passed by and swept off with many
+souls, but were they not those whose time was already almost at hand?
