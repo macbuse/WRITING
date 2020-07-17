@@ -15,5 +15,11 @@ aseptic neon lit electric paradise. Surrounded by super intelligent robots and
 gleaming aluminium flying cars I lived a life of leisure and luxury untroubled
 by sickness or old age.
 
-I guess that kind of world doesn't sell. Readers need struggle, misery,
-catastrophe to be truly captured.   
+I guess that kind of world doesn't sell. To capture readers you need struggle, misery,
+catastrophe. A world worse than their own but where super powers or
+technological gadgets hold the solution. Unfortunately, there seems to be no
+such get out from the dreary drudge of what passes for normality.
+Of course drugs might work for a while.  
+And drugs did work quite well for a number of my generation. 
+
+

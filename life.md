@@ -63,9 +63,18 @@ that many he loved had gone before and that to cling on, a burden to others as
 his inevitable decline played out, would be an act of brazen selfishness. 
 
 There is a world out there in the daylight ready to convince you that to see
-mortality in this way is wrong, romantic foolery at best, most likey dangerous heresy. For we must compete, strive to appease the socio-economic orthodoxy. To simply let go of the material is an verging on a declaration of war, insurrection. And those eloquent commentators defended a right to life above all other considerations. There seems a deep flaw in their arguments, when you weigh the unspent years of the young that must be sacrificed so that their vulnerable elders might wheeze away a few more bedridden months.
+mortality in this way is wrong, romantic foolery at best, most likely dangerous heresy. For we must compete, strive to appease the socio-economic orthodoxy. To simply let go of the material is an verging on a declaration of war, insurrection. And those eloquent commentators defended a right to life above all other considerations. There seems a deep flaw in their arguments, when you weigh the unspent years of the young that must be sacrificed so that their vulnerable elders might wheeze away a few more bedridden months.
 
 Amidst the bland banter an occasional voice stands out wondering why, after of
 centuries where lives were cheap, that now even those last few wrinkly,
 incontinent  years
-have come to be valued at more than the combined wealth of nations.
+are deemed to be worth more than the combined wealth of nations. A century ago
+the youth of Europe were mown down on muddy battlefields in the defense of
+their fellow countrymen and common ideals. Fields of crosses attest to their
+sacrifice. What will they erect as a monument to the ruined lives this time?
+
+Stern faces in white coats tell us that there was no other humane option. Their
+vows demand that they protect life and we must all, no matter what our
+profession or vocation, renounce our common rights that they might respect
+them. So we did but for what? The angel of death passed by and carried off many
+souls, but were they not those whose time was already almost at hand.
