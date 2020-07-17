@@ -38,8 +38,8 @@ communism  had toiled relentlessly without ever come close to achieving such a f
 scrap of life in a matter of weeks had paralysed the fearless economies of the
 free world.
 
-Nothing could be the same again. So they chanted. We should forget their errors
-of the past, not merely forgive them but forget. Together we were going to a better
+Nothing could be the same again. So they chanted. We must forget their errors
+of the past. Not merely forgive them but forget, wipe them clean. Then together we would be going to a better
 place, a new world where the most vulnerable would still be with us. Well at least
 for the handful of months that fate might have allotted them given their
 advanced years. Those most vulnerable, a peculiar almost Dickensian phrase,
