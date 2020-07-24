@@ -22,7 +22,7 @@ some shining aluminium laptop.
 She labours hours to bring us the fruit of discord, of victimhood. Then
 I remember my father proud of his golden fountain pen, covering a page with
 a flowery script, laying forth on a trivial matter of administration. Both are
-noble in their cause. The former in the lime light of the new media irritates with her strident style. The latter, whether sat in his grim office or surrounded by steam and grease at the kitchen table, irritated in an equal and opposite manner.
+noble in their cause. The former's fleshy words exposed in the lime light of the new media, craving the attention of the sycophant as they do, she irritates with her strident style. The latter, whether sat in his grim office or surrounded by steam and grease at the kitchen table, irritated in an equal and opposite manner. He dispensed his acquired wisdom to a captive audience of three children bound to respect and obey.
 
 So he is gone and I am still here. Typing words - white on black - in a search
 for peace, for an exit from the post pandemic doldrums.
