@@ -4,12 +4,13 @@ I had a father. He wasn't much of a man compared to my uncles who, if they were
 to be believed, the gods had carved from granite or some such. They stood proud though
 troubled by the diverse ailments of middle age and boasted of their youth
 battling with their fists, pouring molten metal in the sweltering heat of the
-furnace halls and countless other wonders. They recounted their tales in gruff
+furnace halls and countless other wonders. They recounted their tales in gruff,
+tar-stained
 voices just as men born in the wild northern regions have since time
-immemorial. Their stories were short and brutal, often with a spikey moral in
+immemorial. Their stories were short and brutal, often with a spiky moral in
 their tail. As it unwound little thought was given to the elegance of the language before the jab of the punchline. It was a demonstration of a certain existence, an uncertain physical or intellectual superiority. I listened passively with a polite questioned prepared to confirm the narrator in his moment of triumph.
 
-But my father taught me words. His vocabulary was extensive if sometimes
+But my father taught me words. His vocabulary was extensive if often
 deployed somewhat pretentiously. Many a time we mocked him for a flagrant over
 use of "apparently" but then again in the land of the monosyllabic uncle the little latin scholar is king. By day he composed letters in an grubby little office niched in a dilapidated lane, part of the decaying intestines of a city that still had pretensions to being one of the great cities of the empire. A priori it wasn't the work of a literary man but he took pride in his grand phrases. Frilly pieces of politeness expedited to some stiffish manager in the London office. In the evening he'd teach me his phrases and remind me how important it was to be correct, respectful.
 
@@ -22,7 +23,7 @@ some shining aluminium laptop.
 She labours hours to bring us the fruit of discord, of victimhood. Then
 I remember my father proud of his golden fountain pen, covering a page with
 a flowery script, laying forth on a trivial matter of administration. Both are
-noble in their cause. The former's fleshy words exposed in the lime light of the new media, craving the attention of the sycophant as they do, she irritates with her strident style. The latter, whether sat in his grim office or surrounded by steam and grease at the kitchen table, irritated in an equal and opposite manner. He dispensed his acquired wisdom to a captive audience of three children bound to respect and obey.
-
+noble in their cause. The former's fleshy words exposed in the lime light of the new media, craving the attention of the swarm of sycophant as they do, she irritates with her strident stance. The latter, whether sat in his grim office or surrounded by steam and grease at the kitchen table, irritated in an equal and opposite manner. He dispensed his acquired wisdom to a captive audience of three children bound to respect and obey.
+z
 So he is gone and I am still here. Typing words - white on black - in a search
 for peace, for an exit from the post pandemic doldrums.
