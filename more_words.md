@@ -34,4 +34,6 @@ fading as I read, on crumbling, yellowed paper.
 
  So the words are my roots extending deep into the ground fixing in me in reality. 
  Whenever the fog rolls in paralysing my mind and I stumble and fumble as I have so many times,
- they are still there helping me find a way around even in the depths of despair.
+ they are still there helping me find a way around even in the depths of despair. Familiar, comforting I sit among them and savour their company, their connotations.
+
+
