@@ -11,6 +11,12 @@ Xmas and we shared it. Superficially it was a copy of a bike that had won the To
 I went to university and bought a red bike of my own. Despite having a french name it was just as clunky as my brother's machine. My expeditions into the country were longer and I discovered strange roads that would peter out into dirt tracks in the forest plantations.  
 
 The black carbon bikes were my mistresses. The first I built up myself in time
-honored fashion but the second I bought ready to ride from the box.
+honored fashion but the second I bought ready to ride from the box. She was so
+sleek, the delicateness of the touch of her electronic gears, the purr as the front derailleur centered itself
+so that the chain didn't grind against it. It was all too perfect. It is said
+that men like things and women people. There is no more perfect thing than
+a perfectly equipped carbon fibre bike. Of course I had to change the wheels.
+It's not that they were the steel rimmed horrors of my youth but it was like
+having a super model wearing machine shop overalls.
 
-Over the years the handlebars went down and the seat up. I spent hours doing core work so that I could get down into the crouch position, forearms parallel to the ground and save the watts.
+Over the years the handlebars went down and the seat up. I spent hours doing core work so that I could get down into the crouch position, forearms parallel to the ground and save the watts. Months of crunches, leg raises all sorts of fiendish exercises prostrate in front of the TV.
