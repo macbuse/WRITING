@@ -12,11 +12,12 @@ I went to university and bought a red bike of my own. Despite having a french na
 
 The black carbon bikes were my mistresses. The first I built up myself in time
 honored fashion but the second I bought ready to ride from the box. She was so
-sleek, the delicateness of the touch of her electronic gears, the purr as the front derailleur centered itself
+sleek, the delicateness of the touch of her electronic gears, the whirring of the motor as the front derailleur centered itself
 so that the chain didn't grind against it. It was all too perfect. It is said
 that men like things and women people. There is no more perfect thing than
 a perfectly equipped carbon fibre bike. Of course I had to change the wheels.
 It's not that they were the steel rimmed horrors of my youth but it was like
-having a super model wearing machine shop overalls.
+having a super model wearing  a pair of shabby training shoes on the catwalk.
+Carbon rims and spokes shod with sleek tubular tyres, they felt almost weightless seemingly defying the laws of physics. And the noise - a mix of the purr of the freehub and the subdued roar of the rubber on tarmac - added to the sensation of finally owning my dream.
 
-Over the years the handlebars went down and the seat up. I spent hours doing core work so that I could get down into the crouch position, forearms parallel to the ground and save the watts. Months of crunches, leg raises all sorts of fiendish exercises prostrate in front of the TV.
+Over the years the handlebars went down and the seat up. I spent hours doing core work so that I could get down into the crouch position, forearms parallel to the ground and save the watts. Months of crunches, leg raises all sorts of fiendish exercises prostrate in front of the TV. It felt better, we fitted better together the bike and I. The saddle cradled my buttocks and my hands rested lightly on the brake hoods. Only the pedals felt marginally uncomfortable. 
