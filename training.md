@@ -35,7 +35,24 @@ for it would be to renounce certain unquestionable principles of our time:
 chief among these that the consumer is always right and that the provider must necessarily incline before them
 
 
-This situation was created, it is not a naturally outcome of the education
-system.
+This situation was created, it is not a naturally outcome of the education system. One can argue that it is principally the result of two things
+- the installation of a system of education for the masses and, at least
+    superficially, abandoning the former *elitist* model.
+- the transformation of the system to conform with market principles.
 
-I think the sad thing is that degrees are solely seen as a step on a career path. Education is more than just turning out economic units, something that 150 years of government policy has failed to appreciate.
+Both of these were fundamental tenets of those
+who sought to modernise western society throughout the 80s and the 90s.
+These individuals adhered to a framework of ideas 
+rooted in the work of Hayek who believed in 
+a society organised around a market order in which the apparatus of state is employed almost  exclusively to enforce the legal order necessary for a market of free individuals to function.
+They marketed the notion that quite anyone,
+without respect of natural talent,
+could succeed in this brave new world through personal improvement 
+by the route of education.
+So the masses queued to enroll in whatever degree took their fancy
+in the belief that whatever kind of knowledge they acquired
+was just as valid, as marketable
+as law or microchip design or advanced civil engineering.
+It is tragic that degrees are solely seen as a step on a career path. Education is more than just turning out economic units, something that 150 years of government policy has failed to appreciate.
+Pity these poor souls who bought into degrees thinking
+that a blind investment was going to be a winner.
