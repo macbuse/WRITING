@@ -30,7 +30,7 @@ for it would be to renounce certain dogmas of our time:
 chief among these that the consumer is always right and that the provider must necessarily incline before them.
 
 
-This situation was created, it is not a naturally outcome of the education system. One can argue that it is principally the result of two things
+This situation was brought about intentionally, it is not the consequence of organic evolution of the educational ecosystem. One can argue that it is principally the result of two things
 - the installation of a system of education for the masses and, at least
     superficially, abandoning the former *elitist* model.
 - the transformation of the system to conform with market principles.
@@ -51,3 +51,8 @@ as law or microchip design or advanced civil engineering.
 It is tragic that degrees are solely seen as a step on a career path. Education is more than just turning out economic units, something that 150 years of government policy has failed to appreciate.
 Pity these poor souls who bought into degrees thinking
 that a blind investment was going to be a winner.
+
+The market model is in theory applicable wherever there are (sufficiently many)
+transactions between individuals and providers of goods and services. 
+It is, in theory, capable of finding the optimal value of a given transaction
+over time and provided that there is no inherent bias in the transactions.
