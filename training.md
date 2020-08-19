@@ -24,15 +24,10 @@ that is development of  a life long passion for learning
 and initiation of a truly democratic citizen, 
 then the issues over fees, careers etc would sort themselves
 without undue intervention.
-But drunk as they are on a potent mix of relativism and unfettered narcissism
-persuading the youth to follow this path is very much a herculean task.
+But drunk as they are on a potent cocktail of relativism and unfettered narcissism persuading the youth to follow this path is very much a herculean task.
 Indeed no politician would engage in such a folly
-for it would be to renounce certain unquestionable principles of our time:
-that the consumer is always right and that the provider must necessarily 
-incline before them
-Indeed no politician would engage in such a folly
-for it would be to renounce certain unquestionable principles of our time:
-chief among these that the consumer is always right and that the provider must necessarily incline before them
+for it would be to renounce certain dogmas of our time:
+chief among these that the consumer is always right and that the provider must necessarily incline before them.
 
 
 This situation was created, it is not a naturally outcome of the education system. One can argue that it is principally the result of two things
