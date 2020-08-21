@@ -54,5 +54,4 @@ that a blind investment was going to be a winner.
 
 The market model is in theory applicable wherever there are (sufficiently many)
 transactions between individuals and providers of goods and services. 
-It is, in theory, capable of finding the optimal value of a given transaction
-over time and provided that there is no inherent bias in the transactions.
+Over time it is, in theory, capable of finding the optimal value of a typical transaction and provided that there is no inherent bias in the transactions.

@@ -43,7 +43,7 @@ democratic ways.
 
 The champions of this new crusade are invariably those who have never suffered in any
 meaningful way. Perhaps they cried when their preferred candidate lost the
-elections or somesuch. Maybe even when they were verbally insulted but they
+elections or some such. Maybe even when they were verbally insulted but they
 have never known the pain of going without or of imminent violence. Their lives
 are lived vicariously, they fight for others with no risk of losing.
 Like latter-day saints their heads are garnered with halos clearly visible to the discerning brethren on their
