@@ -23,3 +23,10 @@ We sought out a moment of merriment and laughter.
 We promised each other that when it was all over 
 we would celebrate in fine fashion.
 
+I savoured the simple pleasure of watching a face crease with a smile
+in response to some silly remark 
+or a frown form questioning the direction of the conversation.
+These details of humanity are irritatingly absent from
+the on screen impersonalities.
+A strange world of false faces with a limited vocabulary of expressions
+dictated by the stylebook of television.
