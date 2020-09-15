@@ -30,3 +30,15 @@ These details of humanity are irritatingly absent from
 the on screen impersonalities.
 A strange world of false faces with a limited vocabulary of expressions
 dictated by the stylebook of television.
+To be with real people free to adopt whichever expression takes their 
+fancy is such a refreshing experience, like washing off the dust
+after a day toiling in some Victorian mill.
+
+Now after the liberation we are free to wonder in the streets, 
+to shop in the marketplaces and to take up our
+places in the cafés once more.
+But many of the faces are hidden behind cheap blue masks,
+only the eyes timidly peek out.
+No more the thrill born of a beautiful woman's surprise smile.
+
+
