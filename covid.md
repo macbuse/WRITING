@@ -73,4 +73,33 @@ congratulated themselves.
 I passed briefly to the next waiting area - a sort of booth with a solitary
 seat
 - before being called to the business end. The two medical staff were clad in
-    blue 
+those surgical blue gowns, with matching headcoverings. All three of us were
+masked so the exchanges were formal, eye contact cursory behind those fetching
+goggles. I blew my nose dutifully and prepared for the nasal probe. Down it
+went, twirling a little then some more. Ten seconds and whatever chemical they
+had impregnated it with began to sting, ten more and I really wanted to sneeze
+then it was gone. A few more words to inform me about the results then out the
+back door.
+
+Still it is a marvel of modern society that it took five people to carry out
+a relatively simple procedure medical and administrative.
+
+## Tuesday back on the bike
+
+Days of eating very little left me lightheaded. I rolled out on the mountain
+bike and did a tour in town. Coughed a  little, felt unsure in the saddle but
+so what.
+
+I dressed up, pumped up the tyres, checked the water bottle and rolled out on
+the road bike. It's a nervous beast with narrow bars, slim tyres, deep rims.
+Riding it is not for the faint hearted but once you are dialled in it is
+heaven.
+
+The legs were all twisted from lazing on the sofa. 
+
+I stopped half way, stretched and coughed for an eternity. Somebody once said
+that there is a moment when you sneeze when you are close to death. Poised
+unable to breath before emptying lungs through nostrils, blowing off like some
+whale.
+
+
