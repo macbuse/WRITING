@@ -33,4 +33,9 @@ spreadsheet with its orderly lines and columns. Orderly, ordered, obeying orders
 
 She had gone, fled the tsunami. Officially it was an epidemic but she had lived it more like the aftermath of an earthquake. A single acute event that provoked a collapse of her society as it had been. All the comfortable certainties were a thing of the past - la vie d'avant. Now there was just uncertainty waiting for the next official announcement when one would find out what was allowed and what was proscribed until the following announcement. The days of laws carved in stone were gone just a seemingly unending cycle of revocable decision. People huddled together in front of their screens, in awe before the undulating graphs and the latest set of prescriptions that would without doubt extinguish the sickness that had so far resisted all else. 
 
+In Japan some 10 years ago there had been an earthquake and a tsunami that swept through a nuclear power plant. Tsunami is a borrowed word from  japanese just as pork is a borrowed word from French. The French or rather the Normans ate the meat in medieval England and the Saxons ate whatever else was left. And the Japanese, perched on the Pacific survived with earthquakes and the aftermath. After the shock, perhaps many hours later the wave would wreak havoc on the coast - smashing fishing boats to pieces and devastating the villages.
+
+
+
+
 
