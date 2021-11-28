@@ -7,10 +7,10 @@ every little tweet in the chaotic chorus sometimes attempting to extract some
 sense from them. Mightn't there be a hidden divine message in the anarchy of the birdsong. With fanciful thoughts like that he kept himself from drowning in the daily tedium.
 
 
-Another cup of the bitter brownness that served as coffee. Another bite of the chewy pastry that imitated a croissant. The days were not tainted by torture as they had been for previous generations but nor were they filled with joy.
+Another cup of the bitter brownness that served as coffee. Another bite of the chewy pastry that imitated a croissant. The days were not tainted by torture as they had been for previous generations but nor were they replete with joy.
 
 
-He missed voices. Those exchanges, no matter how banal, that had broken the silence before. The void they left was populated by ideas, each seductively distracting, demanding his attention like some wanton nymph only to abandon him feeling desperately unsatisfied and abused. Conscious that his pursuit would forever be in vain he chased them nonetheless. Intellectual vanity. Sometimes he would conjure a voice from memory and coax it to repeat a tender phrase. For a moment the company relieved his loneliness before he returned to the hunt.
+He missed voices. Those exchanges, no matter how banal, that had broken the silence before. The void they left was populated by ideas, each seductively distracting, demanding his attention like some wanton nymph only to abandon him, sitting there feeling desperately unsatisfied and abused. Conscious that his pursuit would forever be in vain he chased them nonetheless. Intellectual vanity. Sometimes he would conjure a voice from memory and coax it to repeat a tender phrase. For a moment the company relieved his loneliness before he returned to the hunt.
 
 
 Occasionally he would wander out and look at real people instead of the two dimensional representations that visited via the internet. These souls  were solid and real enough but often masked so interactions were limited if not strained. Every word they spoke muffled, their breath filtered in these times of crisis. If he was lucky there might be a glint in an unshielded eye, something to treasure for the remainder of the day. Otherwise he returned home wretched,
