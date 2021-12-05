@@ -35,7 +35,12 @@ She had gone, fled the tsunami. Officially it was an epidemic but she had lived 
 
 In Japan some 10 years ago there had been an earthquake and a tsunami that swept through a nuclear power plant. Tsunami is a borrowed word from  japanese just as pork is a borrowed word from French. The French or rather the Normans ate the meat in medieval England and the Saxons ate whatever else was left. And the Japanese, perched on the Pacific survived with earthquakes and the aftermath. After the shock, perhaps many hours later the wave would wreak havoc on the coast - smashing fishing boats to pieces and devastating the villages. She wasn't japanese but she had pictured them walking home in the darkness of that  night after everything had gone down - TV, trains, nuclear power.
 
+She cried again. Life wasn't wasn't a grind but th colours had washed out. No fancy ballerinas for a long time, no makeup, just her cats and the village food. She passed her hand through her hair and resisted sighing. She had sobbed enough for one day and self pity was weakness wasn't it?
 
+# television
 
+The presenter was trying to sound interesting like she had really mastered economics and philosophy. Her tonged blond hair was a little too artificial, too lacquered to be really natural. She read the words, just as stiff as her hair from a tablet or some other electronic crutch. Her piercing blue eyes gave her a veneer of sharp intelligence but her questions were soft punches and the politician easily recovered form her faint blows. They had ten minutes of this shadow boxing passed off as serious journalistic work. The dreamer yawned, crossed the room and poured some more of the hideous coffee. The aging weather woman would soon be there to soothe his mounting anger with her comforting maternal smile and sensible clothes.
 
+# single child
 
+Mother fed the dog again. He looked at her expectantly as she dished the meat in his bowl. Guilty or angry hard to say, she avoided his gaze and wondered what her daughter would eat tonight or even if she would eat at all. She resisted touching his fluffiness as he gulped down the dinner. The dog was a wonderfully faithful creature, existing in a tiny world of satisfied desire. Her daughter had learned that there was so much more to life and seen the unbearable vastness of the world. So she was left with the dog and the daughter had flown.
