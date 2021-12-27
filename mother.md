@@ -116,7 +116,7 @@ Once on the real road he got back on the toes before hitting the gas and breakin
 
 Feet slapped in the wet throwing water up on his calves. He lumbered along, keeping a rhythm,  swaying from one leg to another and breathing through his nose. It would be over soon and he would be back in the warmth, perhaps in a bath. There was nobody else here in the rain. An occasional car or a bus but not a soul on foot. You had to be some kind of crazy fool to venture out in this weather. 
 
-He came to the river. It wasn't a torrent here like higher in the mountains, broad with sandy banks, slithering along between the tree lined dykes. He walked a few metres as if to catch his breath then set off with renewed vigour. It's hard in the rain to keep one's spirits up, to drive forward against the elements as they push back. At least in the valley there was rarely any wind to speak of. 
+He came to the river. It wasn't a torrent here like higher in the mountains, broad with sandy banks, slithering along between the tree lined dykes. He walked a few metres as if to catch his breath but just admitting the rocky wall in beyond then set off with renewed vigour. It's hard in the rain to keep one's spirits up, to drive forward against the elements as they push back. At least in the valley there was rarely any wind to speak of. 
 
 There was a path that branched off, back into the campus. He didn't often take it but today he couldn't face the slippy section by the river where dead leaves clung to the pavement. So he ran on with hideous prefabricated huts on either side nothing like the elegant gothic or doric buildings one finds in other far off campuses in the US, the UK or even China. What kind of mind did they concoct in these ugly places?
 
