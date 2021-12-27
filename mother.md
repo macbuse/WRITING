@@ -110,11 +110,11 @@ so little to be contented and he had so much that tied him down.
 # rain
 
 
-The muddy grass was slippy underfoot. He preferred the bitumen of the road even if friends warned him that the impact of running would ruin his knees. Up he got on his toes, jogging gently, coaxing muscles to pull together. There was a hundred metres to the next patch of sodden grassy path. 
+The muddy grass was slippy underfoot. He preferred the bitumen of the road even if friends had been warning him for forty years that the impact of running would ruin his knees. Up he got on his toes, jogging gently, coaxing muscles to pull together. There was a hundred metres to the next patch of sodden grassy path. 
 
-Once on the real road he got back on the toes before hitting the gas and breaking into a run. The empty road wound round, through the campus buildings. He avoided the puddles when he could. Wet feet and blisters go together. The rain wasn't heavy but it was cold and it sapped his running mojo. The hot summer days were behind him and he contemplated without pleasure the coming passage across barren winters days.
+Once on the real road he got back on the toes before hitting the gas and breaking into a run. The empty road wound round, through the campus buildings. He avoided the puddles when he could. Wet feet and blisters go together. The rain wasn't heavy but it was cold and it sapped his running mojo. The hot summer days were memories and he contemplated without pleasure the coming passage across barren winters days.
 
-Feet slapped in the wet throwing water up on his calves. He kept a rhythm swaying from one leg to another and breathing through his nose. It would be over soon and he would be back in the warmth, perhaps in a bath. There was nobody else here in the rain. An occasional car or a bus but not a soul on foot. You had to be some kind of crazy fool to venture out in this weather. 
+Feet slapped in the wet throwing water up on his calves. He lumbered along, keeping a rhythm,  swaying from one leg to another and breathing through his nose. It would be over soon and he would be back in the warmth, perhaps in a bath. There was nobody else here in the rain. An occasional car or a bus but not a soul on foot. You had to be some kind of crazy fool to venture out in this weather. 
 
 He came to the river. It wasn't a torrent here like higher in the mountains, broad with sandy banks, slithering along between the tree lined dykes. He walked a few metres as if to catch his breath then set off with renewed vigour. It's hard in the rain to keep one's spirits up, to drive forward against the elements as they push back. At least in the valley there was rarely any wind to speak of. 
 
