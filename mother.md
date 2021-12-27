@@ -49,19 +49,35 @@ For all his beauty, strength and loyalty the dog would never fill the whole in h
 
 # the kid
 
-The music paused and his phone buzzed with an incoming call. He fiddled with the interface as he walked, failing to accept the call from his daughter. She hardly ever called so he texted back. His experience of modern parenthood consisted of a sporadic series of brief text messages and occasional voice calls. The pleasure of tiny voices, laughter and the delightful chaos of time spent with small children was but a faded memory. He'd call her back in 30 minutes after he'd done his rounds.
+The music paused and his phone buzzed with an incoming call. He fiddled with
+the interface as he walked, failing to accept the call from his daughter. She
+hardly ever called so he texted back. His experience of modern parenthood
+consisted of a sporadic series of brief text messages and occasional voice
+calls. The pleasure of tiny voices, laughter and the delightful chaos of time
+spent with small children was but a faded memory. He'd call her back in 30
+minutes after he'd done his rounds.
 
-She sobbed. Her words were barely understandable, not quite a mumble but a string of utterances punctuated by the sobbing. He comforted her with borrowed phrases that were not his
+She sobbed. Her words were barely understandable, not quite a mumble but a
+string of utterances punctuated by the sobbing. He comforted her with borrowed
+phrases that were not his
 - it's not that bad
 - we'll figure something out
-- don't worry.
-He resisted saying that he knew what it was like for they both knew that he had never had to deal with this kind of failure. Sure there had been screw ups in his life but never quite like this. He knew she knew that and to lie would be a betrayal of who they both were.
+- don't worry. He resisted saying that he knew what it was like for they both
+  knew that he had never had to deal with this kind of failure. Sure there had
+  been screw ups in his life but never quite like this. He knew she knew that
+  and to lie would be a betrayal of who they both were.
 
-The sobbing seconds passed and he told her that they should meet the next day for lunch and talk, plan the future, maybe that would work. It's uncomfortable listening to the tearful tale, impotent, powerless to change things for your issue.
+The sobbing seconds passed and he told her that they should meet the next day
+for lunch and talk, plan the future, maybe that would work. It's uncomfortable
+listening to the tearful tale, impotent, powerless to change things for your
+issue.
 
 # presents
 
-The phone rang. Actually it didn't ring as such but the jingle it played dragged him away from the TV. He fumbled trying to swipe the right way on the screen. There was an awkward moment, that silence when you are never sure that you got the gesture right,  before he heard her voice. 
+The phone rang. Actually it didn't ring as such but the jingle it played
+dragged him away from the TV. He fumbled trying to swipe the right way on the
+screen. There was an awkward moment, that silence when you are never sure that
+you got the gesture right,  before he heard her voice. 
 
 - What creams have you got?
 - I'm not sure, I'll look. There's one here on the table and some in the bathroom.
@@ -84,4 +100,18 @@ There were three of the brown jars on the shelf each with a dainty handwritten l
 - Sure. I use the moisturiser but not so much the others.
 - I just want to be sure before I send you more.
 
-She was so kind in a way that children are and teenagers aren't. These might be all that he would get by the way of gifts this Xmas. Yet he was, if not ungrateful then reluctant to take what he didn't really need. His life was so full of things that he hardly used. Cupboards full of clothes, a fridge and freezer packed with food, shelves of beautiful books dusty, unopened. He needed so little to be contented and he had so much that tied him down.
+She was so kind in a way that children are and teenagers aren't. These might be
+all that he would get by the way of gifts this Xmas. Yet he was, if not
+ungrateful then reluctant to take what he didn't really need. His life was so
+full of things that he hardly used. Cupboards full of clothes, a fridge and
+freezer packed with food, shelves of beautiful books dusty, unopened. He needed
+so little to be contented and he had so much that tied him down.
+
+# rain
+
+
+The muddy grass was slippy underfoot. He preferred the bitumen of the road even if friends warned him that the impact of running would ruin his knees. Up he got on his toes, jogging gently, coaxing muscles to pull together. There was a hundred metres to the next patch of sodden grassy path. 
+
+Once on the real road he got back on the toes before hitting the gas and breaking into a run. The empty road wound round, through the campus buildings. He avoided the puddles when he could. Wet feet and blisters go together. The rain wasn't heavy but it was cold and it sapped his running mojo. The hot summer days were behind him and he contemplated without pleasure the coming passage across barren winters days.
+
+Feet slapped in the wet throwing water up on his calves. He kept a rhythm swaying from one leg to another and breathing through his nose. It would be over soon and he would be back in the warmth, perhaps in a bath. There was nobody else here in the rain. An occasional car or a bus but not a soul on foot. You had to be some kind of crazy fool to venture out in this weather. 
