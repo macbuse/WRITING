@@ -35,7 +35,7 @@ She had gone, fled the tsunami. Officially it was an epidemic but she had lived 
 
 In Japan some 10 years ago there had been an earthquake and a tsunami that swept through a nuclear power plant. Tsunami is a borrowed word from  japanese just as pork is a borrowed word from French. The French or rather the Normans ate the meat in medieval England and the Saxons ate whatever else was left. And the Japanese, perched on the Pacific survived with earthquakes and the aftermath. After the shock, perhaps many hours later the wave would wreak havoc on the coast - smashing fishing boats to pieces and devastating the villages. She wasn't japanese but she had pictured them walking home in the darkness of that  night after everything had gone down - TV, trains, nuclear power.
 
-She cried again. Life wasn't wasn't a grind but th colours had washed out. No fancy ballerinas for a long time, no makeup, just her cats and the village food. She passed her hand through her hair and resisted sighing. She had sobbed enough for one day and self pity was weakness wasn't it?
+She cried again. Life wasn't wasn't a grind but the colours had washed out. No fancy ballerinas for a long time, no makeup, just her cats and the village food. She passed her hand through her hair and resisted sighing. She had sobbed enough for one day and self pity was weakness wasn't it?
 
 # television
 
@@ -110,16 +110,16 @@ so little to be contented and he had so much that tied him down.
 # rain
 
 
-The muddy grass was slippy underfoot. He preferred the bitumen of the road even if friends had been warning him for forty years that the impact of running would ruin his knees. Up he got on his toes, jogging gently, coaxing muscles to pull together. There was a hundred metres to the next patch of sodden grassy path. 
+The muddy grass was slippy underfoot. He preferred the bitumen of the road even if friends had been warning him for forty years that the impact of running would ruin his knees. Up he got on his toes, jogging gently, coaxing muscles to pull together. There was a hundred metres to the next patch of sodden grassy path. He pulled himself together, getting ready for the effort, steading his breathing. 
 
 Once on the real road he got back on the toes before hitting the gas and breaking into a run. The empty road wound round, through the campus buildings. He avoided the puddles when he could. Wet feet and blisters go together. The rain wasn't heavy but it was cold and it sapped his running mojo. The hot summer days were memories and he contemplated without pleasure the coming passage across barren winters days.
 
 Feet slapped in the wet throwing water up on his calves. He lumbered along, keeping a rhythm,  swaying from one leg to another and breathing through his nose. It would be over soon and he would be back in the warmth, perhaps in a bath. There was nobody else here in the rain. An occasional car or a bus but not a soul on foot. You had to be some kind of crazy fool to venture out in this weather. 
 
-He came to the river. It wasn't a torrent here like higher in the mountains, broad with sandy banks, slithering along between the tree lined dykes. He walked a few metres as if to catch his breath but just admitting the rocky wall in beyond then set off with renewed vigour. It's hard in the rain to keep one's spirits up, to drive forward against the elements as they push back. At least in the valley there was rarely any wind to speak of. 
+He came to the river. It wasn't a torrent here like higher in the mountains, broad with sandy banks, slithering along between the tree lined dykes. Walking a few metres as if to catch his breath he admired the rocky wall beyond then set off with renewed vigour. It's hard in the rain to keep one's spirits up, to drive forward against the elements as they push back. At least in the valley there was rarely any wind to speak of. 
 
 There was a path that branched off, back into the campus. He didn't often take it but today he couldn't face the slippy section by the river where dead leaves clung to the pavement. So he ran on with hideous prefabricated huts on either side nothing like the elegant gothic or doric buildings one finds in other far off campuses in the US, the UK or even China. What kind of mind did they concoct in these ugly places?
 
 Back on the broad road again he concentrated on his breath, measuring each effort with precision. It was getting wetter but he had only 5 minutes or so to go. Sometimes he wondered if this kind of sport wasn't some kind of gross perversion as the best part was the absence of effort, of suffering when it was over for another day.
 
-The watch beeped. He had done his penance for the day and took to jogging again. Thighs ached slightly, muscles tight from the cold. He wondered if ugly minds too could understand why all this was necessary.
+The watch beeped. He had done his penance for the day and took to jogging again. Thighs ached slightly, muscles tight from the cold. He wondered if ugly minds too could understand why all this was necessary or if the insipidness of their lives could be satisfactory.
