@@ -43,4 +43,45 @@ The presenter was trying to sound interesting like she had really mastered econo
 
 # single child
 
-Mother fed the dog again. He looked at her expectantly as she dished the meat in his bowl. Guilty or angry hard to say, she avoided his gaze and wondered what her daughter would eat tonight or even if she would eat at all. She resisted touching his fluffiness as he gulped down the dinner. The dog was a wonderfully faithful creature, existing in a tiny world of satisfied desire. Her daughter had learned that there was so much more to life and seen the unbearable vastness of the world. So she was left with the dog and the daughter had flown.
+Mother fed the dog again. He looked at her expectantly as she dished the meat in his bowl. Guilty or angry hard to say, she avoided his gaze and wondered what her daughter would eat tonight or even if she would eat at all. She resisted caressing his fluffiness as he gulped down the dinner. The dog was a wonderfully faithful creature, existing in a tiny world of satisfied desire. Her daughter had learned that there was so much more to life and been seduced by the unbearable vastness of the world. So she was left with the dog and the daughter had flown.
+
+For all his beauty, strength and loyalty the dog would never fill the whole in her heart left by the daughter.
+
+# the kid
+
+The music paused and his phone buzzed with an incoming call. He fiddled with the interface as he walked, failing to accept the call from his daughter. She hardly ever called so he texted back. His experience of modern parenthood consisted of a sporadic series of brief text messages and occasional voice calls. The pleasure of tiny voices, laughter and the delightful chaos of time spent with small children was but a faded memory. He'd call her back in 30 minutes after he'd done his rounds.
+
+She sobbed. Her words were barely understandable, not quite a mumble but a string of utterances punctuated by the sobbing. He comforted her with borrowed phrases that were not his
+- it's not that bad
+- we'll figure something out
+- don't worry.
+He resisted saying that he knew what it was like for they both knew that he had never had to deal with this kind of failure. Sure there had been screw ups in his life but never quite like this. He knew she knew that and to lie would be a betrayal of who they both were.
+
+The sobbing seconds passed and he told her that they should meet the next day for lunch and talk, plan the future, maybe that would work. It's uncomfortable listening to the tearful tale, impotent, powerless to change things for your issue.
+
+# presents
+
+The phone rang. Actually it didn't ring as such but the jingle it played dragged him away from the TV. He fumbled trying to swipe the right way on the screen. There was an awkward moment, that silence when you are never sure that you got the gesture right,  before he heard her voice. 
+
+- What creams have you got?
+- I'm not sure, I'll look. There's one here on the table and some in the bathroom.
+- Can you check now please? I want to send you some more.
+
+Up he got a little reluctantly  from his cosy nest on the sofa but what else could he do?
+
+- The one on the table is a moisturiser.
+- Do you use it?
+- Sure. 
+- What about the other ones?
+
+
+There were three of the brown jars on the shelf each with a dainty handwritten label.
+
+- Well there's an SJW, St Johns's Wort, and a lavender. Oh and another SJW.
+- Only four? I thought I had given you more.
+- I think I gave some as gifts to friends. That's OK isn't it?
+- Yes. Do you use them all?
+- Sure. I use the moisturiser but not so much the others.
+- I just want to be sure before I send you more.
+
+She was so kind in a way that children are and teenagers aren't. These might be all that he would get by the way of gifts this Xmas. Yet he was, if not ungrateful then reluctant to take what he didn't really need. His life was so full of things that he hardly used. Cupboards full of clothes, a fridge and freezer packed with food, shelves of beautiful books dusty, unopened. He needed so little to be contented and he had so much that tied him down.
